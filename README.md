@@ -63,4 +63,5 @@ Changes to this Privacy Policy</br>
  This policy is effective as of September 1, 2023
    
 Contact Us</br>
- If you have further questions or any suggestions about Privacy Policy, please feel free to contact us at jojostark168@gmail.com.
+ If you have further questions or any suggestions about Privacy Policy, please feel free to contact us at tasewasu@gmail.com
+.
